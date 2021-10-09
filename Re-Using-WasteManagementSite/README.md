@@ -36,7 +36,7 @@ On the spot, the waste is segregated by our well-informed and trained representa
 ## Contributors
 | Umang goyal     | 
 | Vaishali shukla |
-| Chiranjeev kaur |
+
 
 
 
